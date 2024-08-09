@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/kim-lizette/](https://www.linkedin.com/in/kim-lizette/)
 
-- ⚡ Fun fact **I love dog**
+- ⚡ Fun fact **I love dogs**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
